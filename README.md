@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Neiture95
-- 👀 I’m interested in anything programming
+- 👀 I’m interested in anything programming,FX and crypto
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on tech works and web dev. 
 - 📫 How to reach me oliselv@gmail.com or 08029462936
